@@ -1,4 +1,4 @@
-### 👋,I'm Wenxun, a graduate student majoring in computer technology
+### 👋,I'm Wenxun, a software engineer in Shanghai.
 
 
 
